@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @EisforEdude my YT name is @Edudegamingforyt42
+- 👀 I’m interested in being a famous YouTuber but i still have 91 subscribers.
+- 🌱 I’m currently learning how to make Roblox games
+- 💞️ I’m looking to collab with @DrexBlox
+- 📫 How to reach me https://www.youtube.com/@Edudegamingforyt42
+- 😄 Pronouns: happy, chill, kind and everything that describes kind
+-  have a good day/night y'all!
